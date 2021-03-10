@@ -21,3 +21,4 @@ STOP Abuse Tips:
 >  Get creative with some basic self defense.. There's no real escape.) 
 >  Build as strong a support system as your partner will allow. 
 >  Whenever possible, get involved with people and activities outside your home. .
+>  
