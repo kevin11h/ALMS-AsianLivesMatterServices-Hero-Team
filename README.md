@@ -23,3 +23,10 @@ STOP Abuse Tips:
 >  Build as strong a support system as your partner will allow. 
 >  Whenever possible, get involved with people and activities outside your home. .
 >  
+
+
+I'm raising funds for helping buy signs and camera video equipment to monitor and prevent elder abuse and keep neighborhoods safety
+
+Would you mind giving $50, $20, even just $10 or $5 to our cause?
+
+Thank you - Kevin
