@@ -30,3 +30,6 @@ I'm raising funds for helping buy signs and camera video equipment to monitor an
 Would you mind giving $50, $20, even just $10 or $5 to our cause?
 
 Thank you - Kevin
+
+
+https://www.youtube.com/watch?v=IZ7thBnfF5o&ab_channel=SocLike
