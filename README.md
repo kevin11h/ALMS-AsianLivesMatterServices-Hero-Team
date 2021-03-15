@@ -1,5 +1,7 @@
 # ALMS-AsianLivesMatterServices-Hero-Team
 # https://gofundme.com/manage/eldercare-home-security-installation-camera-videos
+# https://www.youtube.com/watch?v=gwhPVvFOegg&ab_channel=BestProducts
+# https://www.gofundme.com/create/story/eldercare-lightning-and-fire-self-defense-armors
 Logo + Contact + Twitter
 ![](https://ae01.alicdn.com/kf/HTB1fZf7dRcXBuNjt_Xoq6xIwFXah/YJZT-10-3CM-14-2CM-Bruce-Lee-Cartoon-Car-Sticker-Art-Kung-Fu-Vinyl-Decal-Black.jpg_640x640.jpg)
 
