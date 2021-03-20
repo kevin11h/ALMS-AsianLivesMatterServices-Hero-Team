@@ -7044,7 +7044,7 @@ https://asamnews.com/tag/aaron-vu/
 <td>http://latimesblogs.latimes.com/thedailymirror/2007/06/soldier_kills_w.html</td>
 </tr>
 </tbody></table>
-
 # ![Coronavirus Reactive Igorance](www.reddit.com/r/aznidentity/comments/fdk6tw/ongoing_list_of_asian_crimes_due_to_corona_virus/)
+![stop senicide in america](https://www.usatoday.com/story/news/nation/2021/03/15/san-diego-crash-driver-71-detained-after-people-killed-injured/4706433001/)
 # ![Asians Elders Victims of Punk Abuse](https://www.reddit.com/r/aznidentity/comments/fb8b6y/compilation_of_attacks_on_the_elderly)
 Amen God bless us Jesus heals us!
